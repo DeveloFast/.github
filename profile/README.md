@@ -13,17 +13,17 @@
 
 • Cristian Kastaño
 
-• Dina
+• Dina Mercado
 
-• Mariana
+• Mariana Colorado
 
 • Jhonmba
 
-• Stivenson
+• Stivenson Carrillo
 
-• K
+• Kevin Jimenez
 
-•         
+• Pablo Villegas        
 
 
 <h3 align="left">📫 Como contactarnos:</h3>
