@@ -17,7 +17,7 @@
 
 • Mariana Colorado
 
-• Jhonmba
+• J
 
 • Stivenson Carrillo
 
